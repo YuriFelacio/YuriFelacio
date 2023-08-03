@@ -1,6 +1,6 @@
 ### Hi there :trollface:
 <div>
-<a href="https://tracker.gg/valorant/profile/riot/YuritoKiller%239415/overview" target="_blank"> <img width="300px" height="300px" src="nomedaPasta/nomeImagem.jpg
+<a href="https://tracker.gg/valorant/profile/riot/YuritoKiller%239415/overview" target="_blank"> <img width="300px" height="300px" src="https://www.google.com/search?q=valorant&client=opera&sa=X&bih=619&biw=1326&hl=pt-BR&sxsrf=AB5stBgKBfPpfhRBUORyr_T-8YNb-9IDQA:1691092355806&tbm=isch&source=iu&ictx=1&vet=1&fir=7CaiZ2jSZypAuM%252CN8vdbTvHpb513M%252C%252Fg%252F11j8wvrz8z%253B9TTC4AyLHDYmaM%252Cina2_L41_WV-2M%252C_%253B62gVLDFyltxY6M%252CPRX5z8QCC0IKmM%252C_%253BNs2Yi1tROzfPIM%252CJjxgaZI_xkkTIM%252C_%253BhhZUfpnNvbP3FM%252C6WJ0jZ5TLXIvzM%252C_&usg=AI4_-kSWiVRk9ofpvquYVGGOvabzcfmHEQ&ved=2ahUKEwiPwpn5ocGAAxVyDtQKHVCGDS8Q_B16BAhWEAE#imgrc=7CaiZ2jSZypAuM"
 target="_blank"></a>
 </div>
 
