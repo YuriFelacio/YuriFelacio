@@ -1,4 +1,4 @@
-Meu nome deve ser Yuri
+Meu nome deve ser Yuri e eu devo estudar no ensino médio e tecnico da SATC.
 
 <div>
 <a href="https://tracker.gg/valorant/profile/riot/YuritoKiller%239415/overview" target="_blank"> 
